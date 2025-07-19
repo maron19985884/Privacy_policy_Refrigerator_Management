@@ -1,0 +1,1 @@
+# Privacy_policy_Refrigerator_Management
